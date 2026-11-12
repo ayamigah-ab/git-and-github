@@ -1,3 +1,3 @@
 # git-and-github
-Bom chakalaka
+Bom chakalaka; i made some edits 
 Rarrrr dragonsssss
